@@ -124,9 +124,9 @@ Developed by:Jeyapriya.J RegisterNumber:24004150
 
 
 
+![clip_image006](https://github.com/user-attachments/assets/a571507b-6918-437c-af90-43932916f93c)
 
 
-![Screenshot 2024-12-19 053150](https://github.com/user-attachments/assets/b2857c2c-f94f-498b-9bfa-d2473f8c3cc3)
 
 
 
